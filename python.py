@@ -1,1 +1,2 @@
-cmnc,mbnc,m cbcc.,b.cbc.,bm v.n .v 
+lm;nlvcn;vc cbnl;lc;
+bmflkfhl;fkh;fkh;
